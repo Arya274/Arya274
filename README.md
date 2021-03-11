@@ -42,7 +42,7 @@ MY FORUM IN HERE
 
 **KLIK LINK UNTUK JOIN FORUM DISKUSI BOTQUE 💎**
 
-<p align='center'>
+
 
 <a href="https://instagram.com/ini.arga"><img height="30" src="https://github.com/Arya274/Arya274/blob/main/images/instagram.svg?raw=true"></a>&nbsp;&nbsp;
 
