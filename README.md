@@ -41,3 +41,13 @@ MY FORUM IN HERE
 - [GROUP] https://chat.whatsapp.com/JtJGyGmNMWGCz6nDv0a5YN
 
 **KLIK LINK UNTUK JOIN FORUM DISKUSI BOTQUE 💎**
+
+<p align='center'>
+
+<a href="https://instagram.com/ini.arga"><img height="30" src="https://github.com/Arya274/Arya274/blob/main/images/instagram.svg?raw=true"></a>&nbsp;&nbsp;
+
+</p><br/>
+
+![https://github-readme-stats.vercel.app/api?username=Arya274&hide=%5B%22issues%22%5D&show_icons=true&title_color=fff&icon_color=fff&text_color=fff&bg_color=11998e](https://github-readme-stats.vercel.app/api?username=Arya274&hide=%5B%22issues%22%5D&show_icons=true&title_color=fff&icon_color=fff&text_color=fff&bg_color=11998e)
+
+
