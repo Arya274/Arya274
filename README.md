@@ -39,3 +39,5 @@
 </p>
 MY FORUM IN HERE
 - [GROUP] (https://chat.whatsapp.com/JtJGyGmNMWGCz6nDv0a5YN)
+
+**KLIK LINK UNTUK JOIN FORUM DISKUSI BOTQUE 💎**
