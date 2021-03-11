@@ -7,9 +7,9 @@
 
  &nbsp;&nbsp; 
 
-- 🌱 I’m currently learning **nothing**.
+- 🌱 I’m currently learning **In Here NOW.**.
 
-- 👀 I'm currently focusing on **JavaScript**.
+- 👀 I'm currently focusing on **Scholl Day**.
 
 - 📝 I'm currently working on [`INSTAGRAM`](https://instagram.com/arpunchs)
 
