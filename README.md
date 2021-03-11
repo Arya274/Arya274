@@ -37,4 +37,4 @@
 
 
 </p>
-[GITHUB](https://github.com/Arya274)
+[GITHUB](`https://github.com/Arya274`)
